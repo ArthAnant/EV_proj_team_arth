@@ -1,1 +1,1 @@
-# McDonald's market segmentation
+
